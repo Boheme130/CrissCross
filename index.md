@@ -1,4 +1,4 @@
-## Among the Living
+## Criss Cross
 [回到上一页](https://boheme130.github.io/PsyCop/)
 
 ![avatar](https://images-na.ssl-images-amazon.com/images/I/71ECJce2HRL.jpg)
