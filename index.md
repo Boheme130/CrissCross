@@ -21,4 +21,4 @@ Jacob在上一部书在公寓遇袭后放弃了他的旧公寓，暂时住在Vic
 
 为了遵从Lisa的预言，也为了保护Victor，Jacob独立离去，留下Victor一人黯然神伤。Victor想找Lisa再次运用她的预言能力，但是Lisa远在加州的训练营失去了联系方式，因此他决定拜托Roger开车送他去加州找Lisa，然而一路上Victor病情不断恶化，一场阴谋也在暗中等着他，他能否化险为夷，并再次和Jacob和好如初？
 
-
+![avatar](http://www.chacuo.net/uploads/charphoto/2021/20211110/0913ffe6dd6867e82ca718c57ae38d51.jpg)
